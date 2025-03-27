@@ -2,7 +2,7 @@
 - ice cubes
 - 1 ¾ cups plain yogurt
 - 1 ½ cups ice water
-- 6 cubes ice, crushed
+- 8 cubes ice, crushed
 - 2 teaspoons white sugar
 - 1 pinch salt
 
