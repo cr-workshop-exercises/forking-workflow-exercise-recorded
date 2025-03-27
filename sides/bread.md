@@ -11,9 +11,12 @@
 * 200g white flower
 
 ## Instructions
+Make dough
 * Dissolve honey and yeast in water
 * Add the other ingredients and stirr
 * Cover and leave overnight in the fridge
+
+Make bread next day
 * Preheat the oven to 225 C
 * Make rolls on an oven plate with baking paper (you will need a spoon)
 * Bake for 13-15 mins
