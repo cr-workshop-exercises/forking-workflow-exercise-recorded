@@ -1,4 +1,4 @@
-# Bread
+# Cold-raised Bread
 
 ## Ingredients
 * 15 g yeast (fresh)
