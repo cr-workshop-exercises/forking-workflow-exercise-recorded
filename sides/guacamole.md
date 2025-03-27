@@ -4,7 +4,7 @@
 ## Ingredients
 
 - 2 avocados
-- 1 chili
+- very little chili
 - 1 lime
 - 1 tsp salt
 - 1/2 onion
