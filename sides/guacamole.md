@@ -5,18 +5,19 @@
 
 - 2 avocados
 - 1 chili
-- 1 lime
-- 1/2 tsp tsp salt
+- 2 limes
+- 1 tsp salt
 - 1/2 onion
 - 1 Tbsp cilantro
 
 
 ## Instructions
 
-- chop avocados
+- mash avocados
 - chop onion
 - chop chili
 - squeeze lime
 - add salt
+- add cilantro
 - and mix well
 - enjoy!
